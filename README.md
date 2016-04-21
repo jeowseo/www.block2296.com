@@ -1,2 +1,2 @@
-# www.block2296.com
-http://jeowseo.github.io/www.block2296.com
+# tales
+http://jlc2270.github.io/tales
